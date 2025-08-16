@@ -27,4 +27,4 @@ I enjoy digging into applications to find functional, usability, and visual issu
 
 ---
 👤 **Author:** Ebenezer Adusah  
-📧 Contact: your.adusahebenezer4123@gmail.com 
+📧 Contact: adusahebenezer4123@gmail.com 
